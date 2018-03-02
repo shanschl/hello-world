@@ -1,2 +1,2 @@
 ### This is the cool new file that I was talking about
-How was this any cooler?
+It's the cooles file in the world! Okay, now it is!
